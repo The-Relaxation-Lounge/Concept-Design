@@ -34,8 +34,8 @@ Machine on Two Legs. 😁
 
 https://youtu.be/NwmlEqiUh6I?si=S_bClreLtX8RolN2
 
-Awhile back, I was ready to cook me some eggs, and had dropped one on the floor. While I was scooping it up
-I thought of the EggShelf nightstand concept. This is what I came up with...
+Awhile back, I was ready to cook me some eggs and had dropped one on the floor. While I was scooping it up,
+I thought of the EggShelf nightstand concept. This is what I came up with using TurboCad drafting software.
 
 ![Egg-Shelf-6](https://github.com/The-Relaxation-Lounge/Concept-Design/assets/34896540/7482614f-58ea-446b-96f3-83eaf2d2c555)
 
