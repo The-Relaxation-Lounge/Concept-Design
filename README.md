@@ -33,3 +33,18 @@ I am almost a complete Walking Human Computer Science Research Laboratory
 Machine on Two Legs. 😁
 
 https://youtu.be/NwmlEqiUh6I?si=S_bClreLtX8RolN2
+
+Awhile back, I was ready to cook me some eggs, and had dropped one on the floor. While I was scooping it up
+I thought of the EggShelf nightstand concept. This is what I came up with...
+
+![Egg-Shelf-6](https://github.com/The-Relaxation-Lounge/Concept-Design/assets/34896540/7482614f-58ea-446b-96f3-83eaf2d2c555)
+
+![Egg-Shelf-5](https://github.com/The-Relaxation-Lounge/Concept-Design/assets/34896540/92601fd6-a6a4-491a-a3a6-5c64691751fc)
+
+![Egg-Shelf-3](https://github.com/The-Relaxation-Lounge/Concept-Design/assets/34896540/7d014cbf-a77d-4b9d-b22a-501767109718)
+
+![Egg-Shelf-4](https://github.com/The-Relaxation-Lounge/Concept-Design/assets/34896540/2c23025a-68d5-47a0-aa7f-e432e726e41d)
+
+![Egg-Shelf-2](https://github.com/The-Relaxation-Lounge/Concept-Design/assets/34896540/931a2cf7-6225-496e-a1b8-579cdb179e15)
+
+![Egg-Shelf-1](https://github.com/The-Relaxation-Lounge/Concept-Design/assets/34896540/6f5bac8f-2bf1-4fc3-ba63-19de2c955ed4)
